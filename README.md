@@ -1,3 +1,2 @@
-# Edwin_George.github.io
+# Edwin_George
 
-Edwin George
